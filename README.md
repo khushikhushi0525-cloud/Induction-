@@ -1,7 +1,7 @@
 # NEW EXPERIENCE IN INDUCTION PROGRAM
 
-# Day 1
+# Date 31-July-2025
+# Day1
 ## 8:30 to 9:30 
-_ list 1
 
-![img]
+
