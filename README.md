@@ -2,6 +2,10 @@
 
 # Date 31-July-2025
 # Day1
+
+# Introduction about me:-
+Myself Khushi and I am from Btech CSE first year student, this induction program is my best experience and I want to Share this experience with all of u 
+
 ## 8:30 to 9:30 
 
 # AT GURUDWARA SAHIB:-
