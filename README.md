@@ -14,5 +14,5 @@ My first day at GNDEC began with a visit to the Gurudwara Sahib. I offered my pr
  ## 9:30 to 10:30 
 
  
-That is so funny!
-:joy:
+
+😂
