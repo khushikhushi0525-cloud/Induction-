@@ -16,5 +16,10 @@ My first day at GNDEC began with a visit to the Gurudwara Sahib. I offered my pr
  # TEA🧋 & SNACKS🥪 TIME 
 After the prayers, we proceeded to an area where refreshments were served. We were offered beverages along with samosas, which I thoroughly enjoyed. The seniors who were serving us were exceptionally courteous and assisted everyone with great care.
 
+## 10AM
+
+# COMMENCEMENT CEREMONY🎉
+Upon our arrival at the college, we were warmly received and presented with a welcome kit. The welcoming committee, along with the students present, greeted us courteously and guided us to our designated seats.
+
 
  
